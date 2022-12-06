@@ -58,6 +58,15 @@
         R$ 159,00
 
 
+![Image](https://user-images.githubusercontent.com/115032393/205975712-c39c04e0-0408-4c08-b883-caff77d8bc64.png)
+
+         R$ 589,00
+
+
+
+![Image](https://user-images.githubusercontent.com/115032393/205975888-914d959d-0294-41ba-92d1-28aaf55380ea.png)
+  
+          R$ 490,00
 
 
 
