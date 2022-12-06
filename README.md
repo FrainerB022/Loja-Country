@@ -37,7 +37,14 @@
 
 
 
+![Image](https://user-images.githubusercontent.com/115032393/205974057-205d7dda-481e-43e4-9534-6722c1638263.png)
 
+        R$ 99,99
+
+
+![Image](https://user-images.githubusercontent.com/115032393/205974497-44769b9e-b0c6-4b80-bfa4-c12e01606ea2.png)
+
+         R$ 110,00
 
 
 
